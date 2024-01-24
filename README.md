@@ -1,0 +1,1 @@
+# getprize-tether-token.github.io
